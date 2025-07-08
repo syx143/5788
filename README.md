@@ -24,4 +24,4 @@
 所有本站提供的日本AV免费资源均来自合法平台，如FANZA、MGS等，确保你观看的影片是高清正版。我们严格遵守版权法律，确保内容合法合规，用户可以放心观看，避免因盗版问题而产生任何风险。我们提供的资源都是正版授权，保证每部影片都能为你带来无后顾之忧的观影体验。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/syx143/5788 ）</span>
